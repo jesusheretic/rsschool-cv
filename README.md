@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://jesusheretic.github.io/rsschool-cv/
